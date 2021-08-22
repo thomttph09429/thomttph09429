@@ -17,6 +17,7 @@ Here are some ideas to get you started:
 :blush: I’m currently live in Vietnam
 
 🍞 All of my projects are available at https://github.com/thomttph09429
+
 Connect with me 🔥
 
 Facebook: https://www.facebook.com/ngocthom1999/
