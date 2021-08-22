@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 I am Thom :pineapple:
 
 <!--
 **thomttph09429/thomttph09429** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
