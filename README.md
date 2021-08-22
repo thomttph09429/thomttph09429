@@ -15,6 +15,7 @@ Here are some ideas to get you started:
 - ⚡ Fun fact: ...
 -->
 :blush: I’m currently live in Vietnam
+
 🍞 All of my projects are available at https://github.com/thomttph09429
 
 
